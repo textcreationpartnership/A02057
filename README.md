@@ -35,9 +35,14 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The iudges scripture, or, Gods charge to charge-givers A sermon preached in St. Nicholas Church of N
+
+1. 
+TO THE RIGHT WORSIPFVLL, Sir Peter Riddel, Knight and Maior; to Sir Thomas Riddel, Knight and Recorder; to Sir Lionell Maddiſon, Knight and Alderman, and to all the reſt of his worthy Friends, the Worſhipfull Aldermen:
+PErlegi hanc Concionem, cui Titulus (The Iudges Scripture, &c.) in quâ nihil reperio ſanae fidei, au
 #####Body#####
-The iudges scripture, or, Gods charge to charge-givers A sermon preached in St. Nicholas Church of N
+
+1. GODS CHARGE TO CHARGE-GIVERS.
+
 **Types of content**
 
   * There are 2 **verse** lines!
